@@ -1,4 +1,4 @@
-素人兰世界第一可爱ʕ•̫͡• ʔ•̫͡•ཻʕ•̫͡•ʔ•͓͡•ʔ
+ʕ•̫͡• ʔ•̫͡•ཻʕ•̫͡•ʔ•͓͡•ʔ
 
 ![image](https://github.com/zed-industries/zed/assets/45585937/3f2d78ac-f50a-4206-aa48-4f86d81124dd)
 
